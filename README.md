@@ -7,8 +7,8 @@
 📚 Lifelong learner on a mission to blend creativity and technology.
 
 🔗 Let's Connect:
-- LinkedIn: [Your LinkedIn Profile URL]
-- Twitter: [Your Twitter Profile URL]
-- Portfolio: [Your Portfolio Website URL]
+- LinkedIn: []
+- Twitter: []
+- Portfolio: []
 
 📌 Currently Brewing: Innovative apps and solutions that make life simpler.
